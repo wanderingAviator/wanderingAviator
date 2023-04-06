@@ -1,1 +1,1 @@
-just a college student trying to survive 😞✊
+just a college grad trying to survive 😞✊
